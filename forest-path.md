@@ -1,3 +1,3 @@
 Forest path
-Distance, 40 km
+Distance, 4 km
 Shady all the way, good for hot days.
