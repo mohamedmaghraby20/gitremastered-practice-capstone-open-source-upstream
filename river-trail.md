@@ -1,3 +1,3 @@
 River trail
 Distance, 5 km
-Flat and wide, follow the rivr to the old mill.
+Flat and wide, follow the river to the old mill.
